@@ -1,1 +1,0 @@
-# Pensamento_1B
